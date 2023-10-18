@@ -1,1 +1,1 @@
-# bu-ra-k-k-1.-dev
+# bugra kucuk-1.odev
